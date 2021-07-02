@@ -1,1 +1,1 @@
-# Suzarain-T-rk-e-Yamam
+# Suzarain Türkçe Yama
